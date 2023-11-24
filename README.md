@@ -1,1 +1,7 @@
 # git-demo
+
+I'm friends with the monster that's under my bed
+Get along with the voices inside of my head
+
+You're tryin' to save me, stop holding your breath
+And you think I'm crazy, yeah, you think I'm crazy
